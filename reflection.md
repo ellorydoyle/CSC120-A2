@@ -1,3 +1,1 @@
-Use this file to record your reflection on this assignment. 
-
-What worked, what didn't, what advice would you give someone taking this course in the future?
+I really feel like I have no clue what I was doing. I'm not even sure if I did it right to begin with. I asked for a lot of help when it came to this, and I felt more confident near the end, but I think I'm the most eager to find out what I did wrong and improve over the semester!
